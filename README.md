@@ -1,2 +1,2 @@
-# PremiumScript-
+# XModderPremium-
 Instant Steal no key
